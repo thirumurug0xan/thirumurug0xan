@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @thirumurug0xan
 - 👀 I’m interested in hacking the art of exploitation
-- 🌱 I’m currently learning hacking the art
+- 🌱 I’m currently learning art of hacking
 - 📫 How to reach me : msg me on linkedin https://www.linkedin.com/in/thirumurug0xan
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
